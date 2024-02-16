@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Adilaynt.
+- 👀 I’m interested in data analysis, statistics, and technology.
+- 🌱 I’m currently learning advanced statistical analysis techniques and data visualization.
+- 💞️ I’m looking to collaborate on projects related to data science and analytics.
+- 📫 How to reach me: You can contact me via email at adila.yuniantini10@gmail.com or connect with me on LinkedIn at www.linkedin.com/in/adilayuni.
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I enjoy counting steps while walking and often use it as a mental exercise.
